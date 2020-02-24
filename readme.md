@@ -5,10 +5,14 @@
 #具体文本链接：
 诡秘之主：
 兹克
-[Boy of Yours](https://archiveofourown.org/works/22386520)
-[密偶大师与附身者 ](https://archiveofourown.org/works/22043152)
-[Salvatore](https://archiveofourown.org/works/21603445)
-[塔罗会后发生了什么](https://archiveofourown.org/works/20124700)
+[Boy of Yours](https://archiveofourown.org/works/22386520)\\
+
+[密偶大师与附身者 ](https://archiveofourown.org/works/22043152)\\
+
+[Salvatore](https://archiveofourown.org/works/21603445)\\
+
+[塔罗会后发生了什么](https://archiveofourown.org/works/20124700)\\
+
 
 蒙克
 [剖离](https://archiveofourown.org/works/22649398)
